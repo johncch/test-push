@@ -6,4 +6,4 @@ Then, as if by magic, a single small book tumbled from a high shelf and landed o
 
 It was as if she was sucked into another world. As she flipped through the pages, the words jumped out at her and engulfed her reality, transforming the bookshelves around her into another scene. There were rolling emerald hills beneath a violet sky, and a silver river winding toward a city whose towers chimed softly like bells in the wind. She walked forward without thinking, the book still open in her hands, and realized with a quiet wonder that she was no longer reading the story — she had become it.
 
-There was thick fog in front of her that enveloped everything. Suddenly, a pair of eyes opened and gleamed at her. Big gleaming eyes
+There was thick fog in front of her that enveloped everything. Suddenly, a pair of eyes opened and gleamed at her. Big gleaming eyes stared back at her, and a voice from the fog whispered, “At last, you have arrived.” The wanderer tightened her grip on the glowing book and stepped toward the voice, while somewhere beyond the mist, the city’s chiming towers began to ring her name.
